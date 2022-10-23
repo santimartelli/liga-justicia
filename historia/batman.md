@@ -1,3 +1,3 @@
 # Batman
 
-Batam is the largest city in the province of Riau Islands, Indonesia. The city administrative area covers three main islands of Batam, Rempang, and Galang (collectively called Barelang), as well as several small islands. Batam Island is the core urban and industrial zone, while both Rempang Island and Galang Island maintain their rural character and are connected to Batam Island by short bridges. Batam is an industrial boomtown, an emerging transport hub, and part of a free trade zone in the Indonesia–Malaysia–Singapore Growth Triangle, located 20 km (12 mi) off Singapore's south coast and also part of the Indonesia–Malaysia–Thailand Growth Triangle.
+Batman (conocido inicialmente como Bat-Man y en español como el Hombre Murciélago) es un personaje de cómic creado por los estadounidenses Bob Kane y Bill Finger,​ y propiedad de DC Comics.
